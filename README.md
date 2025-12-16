@@ -1,2 +1,5 @@
 # Cachy-Hyprdots
-Linux is Better then Windows you B*#tch
+
+best distro = "Cachy OS"
+
+I use {best distro} BTW
